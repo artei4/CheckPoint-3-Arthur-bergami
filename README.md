@@ -1,1 +1,0 @@
-# CheckPoint-3-Arthur-bergami
